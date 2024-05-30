@@ -1,2 +1,2 @@
 # WDD-AI
-Summer Camp 
+Summer Camp24 
